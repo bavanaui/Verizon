@@ -1,6 +1,5 @@
 
  # # Verizon Wireless Telecommunications# # # 
 
+LG    Motorola    Samsung    Apple    Sony    Verizon    HP    HTC
 
-
-Wireless_ Business    _   Set location   _  Store location   _   Contact us     _   Cart  _    Login
