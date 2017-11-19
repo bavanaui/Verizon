@@ -1,1 +1,1 @@
-Privacy    Terms$conditions      Accessability     Important wireless isuues      Support     Contact Us
+Privacy            Terms$conditions             Accessability             Important wireless Isuues          Support     Contact Us
