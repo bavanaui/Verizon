@@ -1,0 +1,2 @@
+Welcome to # # **Verizon Wireless Telecomunications**.
+## Over company connecting the world with million people![](https://www.google.com/search?q=verizon+wireless+logo+images&rlz=1C1CHBF_enUS766US766&tbm=isch&source=iu&pf=m&ictx=1&fir=FP6ZekIIv0lxxM%253A%252ChyJsuLxQZX4ztM%252C_&usg=__ms3-QkbeQ9vaTkbfvuDQRcPRtpA%3D&sa=X&ved=0ahUKEwj1xdiZ1cvXAhVW02MKHa42DT8Q9QEIPDAJ#imgdii=VIKx6F3D0TxolM:&imgrc=3qVgCdGGi2flTM:)
