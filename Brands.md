@@ -1,1 +1,6 @@
-Wireless      Business      Set location     Store location      Contact us        Cart      Login
+
+ # # Verizon Wireless Telecommunications# # # 
+
+
+
+Wireless_ Business    _   Set location   _  Store location   _   Contact us     _   Cart  _    Login
