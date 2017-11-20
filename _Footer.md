@@ -1,1 +1,0 @@
-Privacy            Terms$conditions             Accessability             Important wireless Isuues          Support     Contact Us
